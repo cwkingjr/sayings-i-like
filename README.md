@@ -1,2 +1,9 @@
-# sayings-i-like
-Here are a few sayings that I like
+# Sayings I like
+
+If you are not the lead dog, the veiw is all the same.
+
+The absence of evidence is not evidence of absence.
+
+Is a frog's @$$ water tight?
+
+
