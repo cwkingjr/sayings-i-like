@@ -9,3 +9,6 @@ Hire slowly - it's better to have a hole in your team that an @$$hole in your te
 Analysis paralysis
 
 The key, the whole key, and nothing but the key, so help me Codd.
+
+You can't outrun a bad diet.
+
